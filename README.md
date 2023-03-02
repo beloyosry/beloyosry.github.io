@@ -1,1 +1,0 @@
-# beloyosry.github.io
